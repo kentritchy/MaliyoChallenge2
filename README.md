@@ -1,2 +1,0 @@
-# MaliyoChallenge2
- 
